@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Christoart0
+- 👀 I’m interested in exploitation
+- 🌱 I’m currently learning designing
+- 💞️ I’m looking to collaborate on crypto alphas
